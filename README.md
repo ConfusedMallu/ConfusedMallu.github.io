@@ -3,4 +3,4 @@
 ## Where to reach us
 We are currently on:
 • Youtube: <a href="https://www.youtube.com/channel/UCRmfyDjtpCcHLblTnmGBjnw">Link</a>
-• Spotify: https://open.spotify.com/user/r5jyopxbqpkrw4esbbo3bcgjd
+• Spotify: <a href="https://open.spotify.com/user/r5jyopxbqpkrw4esbbo3bcgjd">Link</a>
